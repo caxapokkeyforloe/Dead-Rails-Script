@@ -1,6 +1,6 @@
-# **🚂 Roblox Dead Rails Script | Free Aimbot, ESP, Auto Kill & More | 2025 Undetected Roblox FPS Script | Download Dead Rails Hack Tool**
+# **Roblox Dead Rails Script | Free Aimbot, ESP, Auto Kill & More | 2025 Undetected Roblox FPS Script | Download Dead Rails Hack Tool**
 
-# 🎯 Roblox Dead Rails Script – FREE 2025 FPS Hack | Aimbot, Wallhack, Auto Kill & ESP for Dead Rails Roblox Game
+# Roblox Dead Rails Script – FREE 2025 FPS Hack | Aimbot, Wallhack, Auto Kill & ESP for Dead Rails Roblox Game
 
 Welcome to the **official GitHub page** for the **Roblox Dead Rails Script**, a top-tier exploit tool designed for one of Roblox’s most intense FPS experiences – **Dead Rails**. If you're tired of losing firefights or grinding for kills, this script gives you an edge with **next-generation features** like **Aimbot, Wallhack (ESP), Instant Kill**, and **Auto Reload**. All of it comes in a lightweight, undetected, and free Roblox cheat package.
 
